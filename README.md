@@ -1,1 +1,0 @@
-# iccswap-info-m-release
